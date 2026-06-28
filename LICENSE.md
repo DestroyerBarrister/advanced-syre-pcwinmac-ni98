@@ -1,4 +1,4 @@
-# 
+# Automático Advanced SystemCare predefinições para Mac OS | Top Advanced SystemCare predefinições para PC Windows. Com visualizacao rapida e protecao por senha — otimizado para máximo desempenho em cada plataforma.
 
 
 
